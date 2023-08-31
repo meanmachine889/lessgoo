@@ -1,2 +1,2 @@
 # lessgoo
-first github repository by meanmachine !!
+first github repository by meanmachine(aka ur dad) !!
